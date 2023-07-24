@@ -14,14 +14,11 @@ About Me...
 
 My Goals...
 
-    🐬    Swim with or touch a dolphin!  (or a penguin, I like penguins too)
+    🎤     Expand my network and make new allies, even if it makes me uncomfortable.
 
-    👨‍🎓    Graduate with a B.S in Computer Science.  (At least graduate)
+    👨‍🎓      Graduate with a B.S in Computer Science.  (At least graduate)
 
-    👨‍🚀    Become an astronaut!  (as soon as I overcome my fear of heights and tight spaces)
+    🧑‍💻   Get a job that I enjoy.
 
-    😕    Overcome my fear of heights and tight spaces... and spiders! 
+    📚      Gain as much knowledge and experience as I can
 
-    🧑‍💻  Get a job that I enjoy.  (and pays well... with good benefits)
-
-    👨‍👩‍👦‍👦    Have a family of my own so I can show my kid/s that you never HAVE to actually grow up. (Personality wise, of course)
